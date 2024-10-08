@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @lumpjump
+- 🌱 I’m learning .
